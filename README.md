@@ -1,3 +1,2 @@
-<img width="498" height="281" alt="Riyo Riyo Reaper GIF - Riyo Riyo reaper Wink - Discover   Share GIFs" src="https://github.com/user-attachments/assets/024830ed-d24e-4cb7-a328-02a1c71c0aed" />
-
+<img width="736" height="447" alt="WhatsApp Image 2026-05-29 at 22 18 30" src="https://github.com/user-attachments/assets/3f943306-db66-4b3c-8cdd-c2bdb0ba9250" />
  [Sign my ata!! ](https://pplejuice.atabook.org/)
