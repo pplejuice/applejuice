@@ -15,6 +15,7 @@ w2i   15
 ask for disc
 </p>
 
-<img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/041f1ca2-1708-44f0-9108-ae7cefbba81d" />
+<img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/041f1ca2-1708-44f0-9108-ae7cefbba81d" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/23c308b3-7a95-4b57-9973-4d875435b8ae" />
+
 
    [Sign my ata!! ](https://pplejuice.atabook.org/)
