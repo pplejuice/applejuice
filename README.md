@@ -16,3 +16,5 @@ ask for disc
 </p>
 
    [Sign my ata!! ](https://pplejuice.atabook.org/)
+<p align="center">
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5ea88438-97de-4cdf-9f43-36f78a257a82" />
