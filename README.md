@@ -3,7 +3,10 @@
 </p>
 
 <p align="center">
-// AppleJuice
+AppleJuice
+mainly at docks
+w2i   15
+ask for disc
 </p>
 
  [Sign my ata!! ](https://pplejuice.atabook.org/)
