@@ -18,13 +18,4 @@ ask for disc
  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/23c308b3-7a95-4b57-9973-4d875435b8ae" />
 </p>
 
-<img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/041f1ca2-1708-44f0-9108-ae7cefbba81d" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/52617f64-21ee-4cb6-b241-2691a6430e2d" /> <img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/d12182d4-84a0-4434-987f-15246b6dfc7f" /> <img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/cd8f6b9e-e194-43de-a88d-7f8fada977ef" />
-
-
-
-
-
    [Sign my ata!! ](https://pplejuice.atabook.org/)
-
-   <img width="800" height="50" alt="image" src="https://github.com/user-attachments/assets/ce5c3b47-9394-432d-bdc1-d94e6c268444" />
-
